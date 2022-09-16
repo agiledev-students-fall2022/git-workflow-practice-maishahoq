@@ -1,7 +1,7 @@
 # Art has been brutalized by tech’s giants. How can it survive?
 
 
-     **Article :** [Art has been brutalized by tech’s giants. How can it survive?](https://www.technologyreview.com/2020/12/23/1015478/death-of-the-artist-excerpt/)
+     **Article :**[Art has been brutalized by tech’s giants. How can it survive?](https://www.technologyreview.com/2020/12/23/1015478/death-of-the-artist-excerpt/)
 
 
 
